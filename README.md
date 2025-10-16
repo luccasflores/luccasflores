@@ -46,7 +46,7 @@ Busco oportunidades em **desenvolvimento de automações, sistemas SaaS** e **en
 ---
 
 ### 📫 Contato
-📍 Xaxim, SC – Brasil  
+📍 Xanxerê, SC – Brasil  
 📧 **luccasflores.dev@gmail.com**  
 🔗 [LinkedIn](https://linkedin.com/in/luccasflores)  
 💼 [GitHub](https://github.com/luccasflores)
